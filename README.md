@@ -1,4 +1,4 @@
-<img src="https://github.com/ponawpsuxika/ponawpsuxika/blob/main/egw.png" width="500" />
+<img src="https://github.com/ponawpsuxika/ponawpsuxika/blob/main/image.png" width="500" />
 
 ceid upatras 🎱
 
